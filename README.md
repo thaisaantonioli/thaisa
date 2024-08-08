@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 rasteiro.thaisa@escola.pr.gov.br
 
-@alurastartestudante
+
